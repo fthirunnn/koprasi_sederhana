@@ -1,0 +1,1 @@
+# koprasi_sederhana
